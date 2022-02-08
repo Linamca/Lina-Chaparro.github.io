@@ -1,1 +1,0 @@
-# Linamca.github.io
